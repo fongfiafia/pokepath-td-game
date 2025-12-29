@@ -1,4 +1,4 @@
-# PokePath TD: The Ultimate Guide, Tier List & Strategy (2025)
+# PokePath TD: The Ultimate Guide, Tier List & Strategy (2026)
 
 **PokePath TD** has taken the browser gaming world by storm. It is not just a simple fan game; it is a deep, strategic Tower Defense experience that combines creature collecting with complex economy management.
 
